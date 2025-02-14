@@ -1,2 +1,1 @@
-EDDY
-STEEVE
+La mort est une suite d'argent
